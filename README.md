@@ -1,2 +1,3 @@
-# Priyam-Debnath-
-My personal repository 
+Hey There 👋
+- working on something cool 😎
+- I choosed coding as the most heavenly journey 🚀
